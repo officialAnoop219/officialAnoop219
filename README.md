@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @officialAnoop219
-- 👀 I’m interested in ...WEB DEVELOPMENT , DSA
+- 👀 I’m interested in ...WEB DEVELOPMENT 
 - 🌱 I’m currently learning ... WEB DEVELOPMENT
 - 💞️ I’m looking to collaborate on ...WEB DEVELOPMENT TEAM PROJECT
 - 📫 How to reach me ... TWITTER @Anoop_219
